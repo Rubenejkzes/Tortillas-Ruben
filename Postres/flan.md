@@ -1,5 +1,5 @@
-500 ml. de leche entera.
-5 huevos.
-100 gr. de azúcar.
-10 galletas María.
-Caramelo líquido
+1500 ml. de leche entera.
+50 huevos.
+1000 gr. de azúcar.
+100 galletas María.
+Caramelo en nata
